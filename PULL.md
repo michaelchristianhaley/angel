@@ -1,6 +1,6 @@
 # Pull
 
-## Pull tactics invite Assistants with Godly alternatives to sin.
+## Pull tactics invite Assistants to employ Godly alternatives to sinful behavior.
 
 #### Act:
 Perform available work now
